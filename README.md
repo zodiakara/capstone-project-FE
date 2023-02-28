@@ -9,7 +9,7 @@ you've got a piece of furniture that is no longer serving you but is still in a 
 create a profile on ... app and add it. maybe your neighbour could make a use out of it ?
 or if it's completely broken read our ecology guide and learn how to dispose it with the least impact on the environment
 
-**we teach about good practices /n
+**we teach about good practices 
 we preach circular economy approach
 we offer a great community of eco-aware people who share the same goal: SUSTAINABILITY**
 
